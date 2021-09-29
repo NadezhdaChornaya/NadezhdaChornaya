@@ -1,6 +1,8 @@
 ## Hi there, I'm Nadiia 👋
 
-📫 How to reach me: **nadezhdachornaja@gmail.com**
+📫 How to find me: **nadezhdachornaja@gmail.com**
+
+📫 How to find me: **https://www.linkedin.com/in/nadiiachorna/**
 
 ---
 
